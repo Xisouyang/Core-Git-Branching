@@ -24,7 +24,13 @@ He took a tentative step through the door and followed the stone path overgrown 
 
 Along the stone path, he found the Zookeeper and they had a cool conversation.
 
-George met the Unicorn King who granted him magic powers.
+At the end of the path, George and the Zookeeper, Braus, found a crystal door that seemed to be sealed
+shut. However, there was a slot that seemed to fit a key, so George and Braus decided to look for the
+key. After hours of searching with no avail, they found the key. It was actually right next to the
+door the entire time, but was hidden until the light from the twilight illuminated it. George and Braus
+used the key to unlock the door.
+
+George and Braus then met the Unicorn King who granted them magic powers.
 The end.
 
 ## Cast
